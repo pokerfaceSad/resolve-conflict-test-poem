@@ -1,22 +1,22 @@
-# Forever ANd ALways
+# Forever And ALwaYs
 
-* You are the suN that shiNes brightLy throughout my day.
-* You are the gravity that hoLds me dowN iN every way.
-* You are the mooN that shimmers throughout my Night.
-* You are stars that gLimmer oh so bright.
+* you are the sun that shines brightly throughout my day.
+* you are the gravity that holds me down in every way.
+* you are the moon that shimmers throughout my night.
+* you are stars that glimmer oh so bright.
 
-* You are the oxygeN that keeps me aLive.
-* You are my heart that beats iNside.
-* You are the bLood that fLows through me.
-* You are the oNLy guy I caN see.
-* You have the voice of wheN a mockiNgbird siNgs.
-* You are my everythiNg.
+* you are the oxygen that keeps me alive.
+* you are my heart that beats inside.
+* you are the blood that flows through me.
+* you are the only guy I can see.
+* you have the voice of when a mockingbird sings.
+* you are my everything.
 
-* You are my oNe aNd oNLy.
-* You stop me from beiNg so LoNeLy.
-* We pLaN our future as if we have a cLue.
-* I Never waNt to Lose you.
-* I waNt you to be my husbaNd, aNd I waNt to be your wife.
-* I waNt to be with you for the rest of my Life.
+* you are my one and only.
+* you stop me from being so lonely.
+* We plan our future as if we have a clue.
+* I never want to lose you.
+* I want You to be mY husband, and I want to be Your wife.
+* I want to be with You for the rest of mY life.
 
-Source: https://www.famiLyfrieNdpoems.com/poem/forever-aNd-aLways-poem
+Source: https://www.familyfriendpoems.com/poem/forever-and-alwaYs-poem
